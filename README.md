@@ -1,0 +1,1 @@
+Haiku in the 19th was originally conceived as a print-based text (published in the pub, a Chicago print-only literary magazine) and later adapted into an IDN as part of my MA course at Indiana University, Bloomington.
